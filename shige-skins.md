@@ -9,8 +9,11 @@ Feel free to mail me any missing skin [here](mailto:lolisamurai@tfwno.gf) (or ju
 # [newShige1](http://dare.moe/f/4y)
 ![](http://hnng.moe/f/3xO)
 
-# [Shigeplay+test](http://hnng.moe/f/3xU)
+# [Shigeplay+test](http://hnng.moe/f/3xY)
 ![](http://www.hnng.moe/f/3xU)
+
+# [Cookiezi+07.18.15+SpareFin](http://hnng.moe/f/3xa)
+![](http://hnng.moe/f/3xZ)
 
 # [^+hamachi(C-edited)](http://hnng.moe/f/3xT)
 ![](http://hnng.moe/f/3xS)
