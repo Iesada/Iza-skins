@@ -3,28 +3,28 @@ Feel free to mail me any missing skin [here](mailto:lolisamurai@tfwno.gf) (or ju
 
 **Click on the skin name to download. If the download does not start or displays strange characters, press ctrl + S.**
 
-**If osu! crashes or the skin is missing stuff, rename the file to .zip and extract it then copy the folder to your Skins folder. This will be fixed over the next few hours. If you still can't get the skin to work mention me in twitch chat and explain the problem in detail.**
+**Even if it says can't import the skins should work fine. If you're sure it doesn't work make sure you are on beta or cuttingedge. If you still can't get the skin to work mention me in twitch chat and explain the problem in detail.**
 
-# [NewSkin (latest)](http://dare.moe/f/4z)
+# [NewSkin (latest)](http://hnng.moe/f/3yx)
 ![](http://hnng.moe/f/3xP)
 
-# [newShige1](http://dare.moe/f/4y)
+# [newShige1](http://hnng.moe/f/3z0)
 ![](http://hnng.moe/f/3xO)
 
-# [play](http://hnng.moe/f/3xp)
+# [play](http://hnng.moe/f/3zo)
 ![](http://www.hnng.moe/f/3xo)
 
-# [Cookiezi+07.18.15+SpareFin](http://hnng.moe/f/3xa)
+# [Cookiezi+07.18.15+SpareFin](http://hnng.moe/f/3zq)
 ![](http://hnng.moe/f/3xZ)
 
-# [^+hamachi(C-edited)](http://hnng.moe/f/3xT)
+# [^+hamachi(C-edited)](http://hnng.moe/f/3zt)
 ![](http://hnng.moe/f/3xS)
 
-# [Shigeplay+test](http://hnng.moe/f/3xY)
+# [Shigeplay+test](http://hnng.moe/f/3zv)
 ![](http://www.hnng.moe/f/3xU)
 
-# [Shigetora's Skin](http://hnng.moe/f/3xt)
+# [Shigetora's Skin](http://hnng.moe/f/3zx)
 ![](http://hnng.moe/f/3xv)
 
-# [Cookiezi (Old)](http://hnng.moe/f/3xR)
+# [Cookiezi (Old)](http://hnng.moe/f/3zy)
 ![](http://hnng.moe/f/3xQ)
