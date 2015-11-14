@@ -9,9 +9,6 @@ Feel free to mail me any missing skin [here](mailto:lolisamurai@tfwno.gf) (or ju
 # [newShige1](http://dare.moe/f/4y)
 ![](http://hnng.moe/f/3xO)
 
-# [Shigeplay+test](http://hnng.moe/f/3xY)
-![](http://www.hnng.moe/f/3xU)
-
 # [play](http://hnng.moe/f/3xp)
 ![](http://www.hnng.moe/f/3xo)
 
@@ -20,6 +17,12 @@ Feel free to mail me any missing skin [here](mailto:lolisamurai@tfwno.gf) (or ju
 
 # [^+hamachi(C-edited)](http://hnng.moe/f/3xT)
 ![](http://hnng.moe/f/3xS)
+
+# [Shigeplay+test](http://hnng.moe/f/3xY)
+![](http://www.hnng.moe/f/3xU)
+
+# [Shigetora's Skin](http://hnng.moe/f/3xt)
+![](http://hnng.moe/f/3xu)
 
 # [Cookiezi (Old)](http://hnng.moe/f/3xR)
 ![](http://hnng.moe/f/3xQ)
