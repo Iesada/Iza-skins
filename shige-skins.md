@@ -12,6 +12,9 @@ Feel free to mail me any missing skin [here](mailto:lolisamurai@tfwno.gf) (or ju
 # [Shigeplay+test](http://hnng.moe/f/3xY)
 ![](http://www.hnng.moe/f/3xU)
 
+# [play](http://hnng.moe/f/3xp)
+![](http://www.hnng.moe/f/3xo)
+
 # [Cookiezi+07.18.15+SpareFin](http://hnng.moe/f/3xa)
 ![](http://hnng.moe/f/3xZ)
 
