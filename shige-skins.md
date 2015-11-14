@@ -22,7 +22,7 @@ Feel free to mail me any missing skin [here](mailto:lolisamurai@tfwno.gf) (or ju
 ![](http://www.hnng.moe/f/3xU)
 
 # [Shigetora's Skin](http://hnng.moe/f/3xt)
-![](http://hnng.moe/f/3xu)
+![](http://hnng.moe/f/3xv)
 
 # [Cookiezi (Old)](http://hnng.moe/f/3xR)
 ![](http://hnng.moe/f/3xQ)
