@@ -3,6 +3,8 @@ Feel free to mail me any missing skin [here](mailto:lolisamurai@tfwno.gf) (or ju
 
 **Click on the skin name to download. If the download does not start or displays strange characters, press ctrl + S.**
 
+**If osu! crashes or the skin is missing stuff, try restarting the game or switching to beta or cuttingedge. If you still can't get the skin to work mention me in twitch chat and explain the problem in detail.**
+
 # [NewSkin (latest)](http://dare.moe/f/4z)
 ![](http://hnng.moe/f/3xP)
 
