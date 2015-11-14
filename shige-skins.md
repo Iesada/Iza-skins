@@ -1,6 +1,19 @@
 # Shigetora / Cookiezi skin compilation
 Feel free to mail me any missing skin [here](mailto:lolisamurai@tfwno.gf) (or just mention me in shige's chat).
 
-# newShige1
-## [Download](https://osu.ppy.sh/ss/3960543)
+**Click on the skin name to download. If the download does not start or displays strange characters, press ctrl + S.**
+
+# [NewSkin (latest)](http://hnng.moe/f/3xP)
+![](http://dare.moe/f/4z)
+
+# [newShige1](http://dare.moe/f/4y)
 ![](http://hnng.moe/f/3xO)
+
+# [Shigeplay+test](http://hnng.moe/f/3xU)
+![](http://www.hnng.moe/f/3xU)
+
+# [^+hamachi(C-edited)](http://hnng.moe/f/3xT)
+![](http://hnng.moe/f/3xS)
+
+# [Cookiezi (Old)](http://hnng.moe/f/3xQ)
+![](http://hnng.moe/f/3xR)
