@@ -3,8 +3,8 @@ Feel free to mail me any missing skin [here](mailto:lolisamurai@tfwno.gf) (or ju
 
 **Click on the skin name to download. If the download does not start or displays strange characters, press ctrl + S.**
 
-# [NewSkin (latest)](http://hnng.moe/f/3xP)
-![](http://dare.moe/f/4z)
+# [NewSkin (latest)](http://dare.moe/f/4z)
+![](http://hnng.moe/f/3xP)
 
 # [newShige1](http://dare.moe/f/4y)
 ![](http://hnng.moe/f/3xO)
@@ -18,5 +18,5 @@ Feel free to mail me any missing skin [here](mailto:lolisamurai@tfwno.gf) (or ju
 # [^+hamachi(C-edited)](http://hnng.moe/f/3xT)
 ![](http://hnng.moe/f/3xS)
 
-# [Cookiezi (Old)](http://hnng.moe/f/3xQ)
-![](http://hnng.moe/f/3xR)
+# [Cookiezi (Old)](http://hnng.moe/f/3xR)
+![](http://hnng.moe/f/3xQ)
