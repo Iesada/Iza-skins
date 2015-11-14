@@ -26,5 +26,8 @@ Feel free to mail me any missing skin [here](mailto:lolisamurai@tfwno.gf) (or ju
 # [Shigetora's Skin](http://hnng.moe/f/3zx)
 ![](http://hnng.moe/f/3xv)
 
+# [Burakku Shipu (Kamui)](http://hnng.moe/f/402)
+![](http://hnng.moe/f/405)
+
 # [Cookiezi (Old)](http://hnng.moe/f/3zy)
 ![](http://hnng.moe/f/3xQ)
