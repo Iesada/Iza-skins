@@ -1,1 +1,1 @@
-(https://osu.ppy.sh/ss/3960543)[newShige1]
+[newShige1](https://osu.ppy.sh/ss/3960543)
