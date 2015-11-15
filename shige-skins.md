@@ -11,8 +11,14 @@ Feel free to mail me any missing skin [here](mailto:lolisamurai@tfwno.gf) (or ju
 # [newShige1](http://hnng.moe/f/3z0)
 ![](http://hnng.moe/f/3xO)
 
+# [shigetora+new](http://hnng.moe/f/41l)
+![](http://hnng.moe/f/41k)
+
 # [play](http://hnng.moe/f/3zo)
 ![](http://www.hnng.moe/f/3xo)
+
+# [shigetora+old+2](http://hnng.moe/f/41n)
+![](http://hnng.moe/f/41m)
 
 # [Cookiezi+07.18.15+SpareFin](http://hnng.moe/f/3zq)
 ![](http://hnng.moe/f/3xZ)
