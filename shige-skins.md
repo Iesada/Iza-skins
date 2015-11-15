@@ -37,3 +37,6 @@ Feel free to mail me any missing skin [here](mailto:lolisamurai@tfwno.gf) (or ju
 
 # [Cookiezi (Old)](http://hnng.moe/f/3zy)
 ![](http://hnng.moe/f/3xQ)
+
+# [Cookiezi (2009-2010)](http://hnng.moe/f/41r)
+![](http://hnng.moe/f/41s)
