@@ -5,7 +5,10 @@ Feel free to mail me any missing skin [here](mailto:lolisamurai@tfwno.gf) (or ju
 
 **Even if it says can't import the skins should work fine. If you're sure it doesn't work make sure you are on beta or cuttingedge. If you still can't get the skin to work mention me in twitch chat and explain the problem in detail.**
 
-# [NewSkinColor2 (latest)](http://hnng.moe/f/4bV)
+# [ShigeHDHR (latest)](http://puu.sh/lXWMp/c56e57fd86.osk)
+![](http://hnng.moe/f/5Nn)
+
+# [NewSkinColor2](http://hnng.moe/f/4bV)
 ![](http://hnng.moe/f/4ZZ)
 
 # [NewSkin](http://hnng.moe/f/3yx)
