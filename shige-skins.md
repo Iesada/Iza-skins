@@ -5,7 +5,7 @@ Feel free to mail me any missing skin [here](mailto:lolisamurai@tfwno.gf) (or ju
 
 **Even if it says can't import the skins should work fine. If you're sure it doesn't work make sure you are on beta or cuttingedge. If you still can't get the skin to work mention me in twitch chat and explain the problem in detail.**
 
-# The latest ski elements (such as the hit count overlay) are private!
+# The latest ski elements (such as the key overlay) are private!
 
 # [SameSkinButNoRingHitCirclesWeirdNamev2](http://puu.sh/mpiGL/e5200dd394.osk)
 ![](http://hnng.moe/f/5wr)
