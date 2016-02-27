@@ -11,7 +11,7 @@ If you want the hitsounds from the 19th Feb stream you can get them from this sk
 # [SameSkinButNoRingHitCirclesWeirdNamev3](http://hnng.moe/f/8Lh)
 ![](http://hnng.moe/f/8Li)
 
-# [SameSkinButNoRingHitCirclesWeirdNamev2](http://puu.sh/mpiGL/e5200dd394.osk)
+# [SameSkinButNoRingHitCirclesWeirdNamev2](http://hnng.moe/f/8Lj)
 ![](http://hnng.moe/f/5wr)
 
 # [SameSkinButNoRingHitCirclesWeirdName](http://hnng.moe/f/5Ye)
