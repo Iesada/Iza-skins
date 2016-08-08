@@ -8,6 +8,9 @@ Feel free to mail me any missing skin [here](mailto:lolisamurai@tfwno.gf) (or ju
 # The anime skin elements (such as the key overlay) are private!
 If you want the hitsounds from the 19th Feb stream you can get them from this skin and paste them into the latest one -> [click](http://www.mediafire.com/download/ebbnjdfzas7dmwd/My+skin.osk)
 
+# [-+Shige+Seoul+(16-9)](http://hnng.moe/f/FbO)
+![](http://hnng.moe/f/FbP)
+
 # [SameSkinButNoRingHitCirclesWeirdNamev3](http://hnng.moe/f/8Lh)
 ![](http://hnng.moe/f/8Li)
 
